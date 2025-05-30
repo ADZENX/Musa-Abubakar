@@ -1,7 +1,5 @@
 # Musa-Abubakar
 
-INTRODUCTION
-
-*General*
+*INTRODUCTION*
 
 I am a Physics graduate with a Second Class Upper Division, equipped with a strong academic foundation in both theoretical and experimental physics. Throughout my studies, I developed critical thinking, analytical reasoning, and problem-solving skills that allow me to approach complex challenges with clarity and precision. My background includes exposure to interdisciplinary fields, enabling me to adapt quickly, collaborate effectively, and communicate complex ideas in simple terms. I have hands-on experience in laboratory research, data analysis, and the use of scientific tools and software, and I take pride in being self-motivated, detail-oriented, and committed to continuous learning. These qualities, combined with my academic training, prepare me to contribute meaningfully in diverse professional environments.
